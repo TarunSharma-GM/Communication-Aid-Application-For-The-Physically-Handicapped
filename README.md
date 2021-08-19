@@ -1,0 +1,1 @@
+# Communication-Aid-Application-For-The-Physically-Handicapped
